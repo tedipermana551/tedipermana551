@@ -2,7 +2,7 @@
 
 Perkenalkan nama saya **Tedi Permana**.<br>
 
-Saya seorang **Pelajar** di [Dicoding](https://www.dicoding.com/).<br>
+Saya seorang **Lulusan** [Dicoding](https://www.dicoding.com/) bootcamp batch 11.<br>
 
 Saya juga seorang illustrator dan grafik desainer. [Behance](https://www.behance.net/tedipermana).<br>
 
